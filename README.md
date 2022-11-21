@@ -1,4 +1,4 @@
-👋 Hi, Guys! 👋 
+ Hi, Guys! 👋 
 
 - 📛 My Name is Dimas Brahmantyo (Dimas)
 - 📈 Analytical-driven Person
